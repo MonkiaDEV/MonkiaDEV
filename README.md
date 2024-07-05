@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MonkiaDEV
+- 👀 I’m interested in Gorilla Tag
+- 🌱 I’m currently learning Nothing 💀
+- 💞️ I’m looking to collaborate on Developer For My Upcoming Gorilla Tag Fan Game "Monkia"
+- 📫 How to reach me "nowhere" 💀
+- 😄 Pronouns: He/his/him
+- ⚡ Fun fact: I Have 4 Cats
